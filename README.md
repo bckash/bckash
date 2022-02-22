@@ -5,7 +5,7 @@
 
 💪🏼 I learn by doing, getting better with every line.
 
-📌 I've pinned my work below, feel welcome to have a look :
+📌 I've pinned my main work below, feel welcome to have a look :
 
 
 
